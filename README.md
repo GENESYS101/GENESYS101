@@ -1,5 +1,5 @@
 - 👋 I Call my hacking name @GENESYS
-- 👌 Obsessed with hacking since i was a kid 👀..
+- 👌 Obsessed with hacking since i was a kid 👀.. 
 -
 -    🚩      🚩
 -    *--------*                                     (I'm currently here )
